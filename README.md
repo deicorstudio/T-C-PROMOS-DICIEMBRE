@@ -1,1 +1,1 @@
-# T-C-PROMOS-DICIEMBRE
+# Deicor Studio™ forma parte de Decorp Holding Enterprises®.
